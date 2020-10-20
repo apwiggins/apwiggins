@@ -1,4 +1,4 @@
-### Hi there 👋
+### A few items that may be useful to a wider audience
 
 
 <!--
