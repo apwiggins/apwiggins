@@ -1,4 +1,4 @@
-### A few items that may be useful to a wider audience
+### A few items that may be useful to you
 
 
 <!--
